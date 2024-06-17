@@ -12,7 +12,7 @@
 
 - 📝 I regularly write articles on [Video Editing,Desiging and Poems](Video Editing,Desiging and Poems)
 
-- 💬 Ask me about **Womanizer ,Playboy,Rizzler,Passionate towards Work**
+- 💬 Ask me about **Womanizer ,Playboy,Rizzler, Passionate towards Work**
 
 - 📫 How to reach me **Joyboy00800@gmail.com**
 

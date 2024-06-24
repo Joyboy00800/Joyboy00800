@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>- 🔭 I’m currently working on **AI/ML**<br><br>- 🌱 I’m currently learning **Every thing which is required**<br><br>- 👯 I’m looking to collaborate on **Web 3**<br><br>- 🤝 I’m looking for help with **Professional Developer**<br><br>- 📝 I regularly write articles on [Video Editing,Desiging and Poems]<br><br>- 💬 Ask me about **Womanizer ,Playboy ,Rizzler ,Passionate towards Work**<br><br>- 📫 How to reach me **Joyboy00800@gmail.com**<br><br>- ⚡ Fun fact **People think that i am funny am!I**
+<br>- 🔭 I’m currently working on **AI/ML**<br><br>- 🌱 I’m currently learning **Every thing which is required**<br><br>- 👯 I’m looking to collaborate on **Web 3**<br><br>- 🤝 I’m looking for help with **Professional Developer**<br><br>- 📝 I regularly write articles on [Video Editing,Desiging and Poems]<br><br>- 💬 Ask me about **Womanizer ,Playboy ,Rizzler ,Passionate towards Work**<br><br>- 📫 How to reach me **Joyboy00800@gmail.com**<br><br>- ⚡ Fun fact **People think that i am funny am I !**
 
 
 ## 🌐 Socials:

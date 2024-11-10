@@ -10,7 +10,7 @@
     * And the ever-fascinating fields of Computer Science!
 * **👯 I'm working on Web 3 projects, particularly building dApps.**
 * **🤝 I'm seeking assistance from best LLM models to optimize my code.**
-* **📝 I write poetries, jokes and design posters and more. **
+* **📝 I write poetries, jokes and design posters and logos, thumbnails , banners and more. **
 * **💬 Ask me about nothing because people really don't ask.**
 * **📫 Wanna find me,Naah don't do it !!!!! .**
 * **⚡ Fun fact: People often tell me I'm funny. What do you think? 😉**

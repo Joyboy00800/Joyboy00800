@@ -1,4 +1,4 @@
-* **🔭 I'm currently working on AI/ML.**
+* **🔭 I'm currently Learning AI/ML.**
 * **🌱 I'm constantly learning and expanding my skillset in:**
     * Video Editing
     * Film Making
@@ -6,16 +6,13 @@
     * UX/UI Design
     * Frontend Development
     * Backend Development
-    * Cybersecurity
+    * Cybersecurity and Hacking.
     * And the ever-fascinating fields of Computer Science!
-* **👯 I'm looking to collaborate on Web 3 projects, particularly building dApps.**
-* **🤝 I'm seeking assistance from a senior developer to optimize my code.**
-* **📝 I write articles on various topics, including:**
-    * Video editing tutorials
-    * Design tips
-    * Poetry analysis
-* **💬 Ask me about my passion for problem-solving and my drive to create innovative solutions.**
-* **📫 Reach out to me at yourProfessionalEmail@domain.com (replace with your professional email).**
+* **👯 I'm working on Web 3 projects, particularly building dApps.**
+* **🤝 I'm seeking assistance from best LLM models to optimize my code.**
+* **📝 I write poetries, jokes and design posters and more. **
+* **💬 Ask me about nothing because people really don't ask.**
+* **📫 Wanna find me,Naah don't do it !!!!! .**
 * **⚡ Fun fact: People often tell me I'm funny. What do you think? 😉**
 
 

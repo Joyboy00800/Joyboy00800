@@ -1,5 +1,22 @@
-# 💫 About Me:
-<br>- 🔭 I’m currently working on  **AI/ML**<br><br>- 🌱 I’m currently learning **Every thing which is required**<br><br>- 👯 I’m looking to collaborate on **Web 3**<br><br>- 🤝 I’m looking for help with **Professional Developer**<br><br>- 📝 I regularly write articles on [Video Editing,Desiging and Poems]<br><br>- 💬 Ask me about **Womanizer ,Playboy ,Rizzler ,Passionate towards Work**<br><br>- 📫 How to reach me **Joyboy00800@gmail.com**<br><br>- ⚡ Fun fact **People think that i am funny am I !**
+* **🔭 I'm currently working on AI/ML.**
+* **🌱 I'm constantly learning and expanding my skillset in:**
+    * Video Editing
+    * Film Making
+    * Graphic Design
+    * UX/UI Design
+    * Frontend Development
+    * Backend Development
+    * Cybersecurity
+    * And the ever-fascinating fields of Computer Science!
+* **👯 I'm looking to collaborate on Web 3 projects, particularly building dApps.**
+* **🤝 I'm seeking assistance from a senior developer to optimize my code.**
+* **📝 I write articles on various topics, including:**
+    * Video editing tutorials
+    * Design tips
+    * Poetry analysis
+* **💬 Ask me about my passion for problem-solving and my drive to create innovative solutions.**
+* **📫 Reach out to me at yourProfessionalEmail@domain.com (replace with your professional email).**
+* **⚡ Fun fact: People often tell me I'm funny. What do you think? 😉**
 
 
 ## 🌐 Socials:

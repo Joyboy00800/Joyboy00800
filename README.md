@@ -1,6 +1,7 @@
 * **🔭 I'm currently Learning AI/ML.**
 * **🌱 I'm constantly learning and expanding my skillset in:**
-    * Video Editing
+    * Video Editing 
+    * Story Telling
     * Film Making
     * Graphic Design
     * UX/UI Design

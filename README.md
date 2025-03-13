@@ -3,7 +3,6 @@
     * Video Editing 
     * Story Telling
     * Film Making
-    * Graphic Design
     * UX/UI Design
     * Frontend Development
     * Backend Development
